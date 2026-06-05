@@ -1,22 +1,24 @@
 # Unders-pt-intro
-Almost always on the 18+ server
+Almost always on the 18+ server.
 
-Cringe is free and so am I (Sometimes... Maybe...)
+Cringe is free and so am I (maybe...??)
 
-I bite, but just a friendly nibble >:P
+I do bite, but just a friendly nibble >:P
 
 Incoherent speech, will take time to answer. Sometimes would double down...
 
-Play both on mobile & pc
+Play both on mobile & pc.
 
-Ragebaiters, I will sit on you until you get a sense of human rights in you. Jokes aside, I block freely.
+Ragebaiters, I will sit on you until you get a sense of human rights in you (Joke aside, I block freely).
 
 Status matters!! (mostly set as busy, which means I'm there).
 
-Usually not opening convo first, awkward, you see. Would yap a lot if given opportunity
+Usually not the one to open a conversation first. Awkward, you see-
 
-Wandering around, mostly at TWST tree
+Wandering around, mostly at the TWST tree.
 
-Whispers are appreciated and would answer back asap
+Whispers are appreciated, and I will answer back asap!!
 
-Zoom 8x or 10× unless status set as 'online'
+Would yap a lot if given the opportunity.
+
+Zoom 8x or 10× unless status is set as 'online.'
